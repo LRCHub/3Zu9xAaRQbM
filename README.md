@@ -1,98 +1,58 @@
-# Yvng Patra – Hood star
+# Three 6 Mafia feat. Lyfe Jennings – Hood Star
 
 > **歌詞登録ステータス：プレーン歌詞のみ**
 
 ```
-生まれは新潟
-今じゃこの街の俺がHoodstar
-弟 兄ちゃんは 今ラップしてるから心配ない
-お年玉あげる側になった
-だけども財布は空にはなんない
-俺には持ってる夢とかあんだ
-体に墨見て泣いてた母ちゃん
-あの頃の俺に会えるんなら教えてあげたい
-なんとかなってるぞ
-タバコがない時いつもくれる友達
-でも吸いたくないメンソール
-憧れる側から追われる側になっても
-変わらないfriend
-謙虚を忘れるやつはダサい
-まだまだ満足なんてしない
-顔も忘れてる昔の女
-俺の地元はAEONしか無いんだ
-だっさい先輩無視って切った
-バカにしてたけど気持ちはどうだ？
-I was broke 今上昇
-仲間の間には要らん損得
-まだまだ価値上げてるとこ
-似合ってるMonclerにGold chain
-地元に帰ったらDirty Room
-喜んで迎えに来てる友達
-足元を見てくるやつも居ないぜ
-朝までchillして呑んでるSunday
-溜まってるInstagramのDM
-サイン求められるレジの店員
-もっと高い所に俺は行きたい
-周りに感謝して俺は生きてる
-元々俺はもっと暗いとこ居た
-今はDMが 来る どこに居た
-ありがたい話だけど返さない
-鼻が伸びてるとか そういうことじゃない
-君のパパより増えてる給料
-この音楽なければ空虚
-下手にFlexはしないぜ
-俺が見せる時はレベル違う断然
-生まれは新潟
-今じゃこの街の俺がHoodstar
-弟 兄ちゃんは 今ラップしてるから心配ない
-お年玉あげる側になった
-だけども財布は空にはなんない
-俺には持ってる夢とかあんだ
-体に墨見て泣いてた母ちゃん
-あの頃の俺に会えるんなら教えてあげたい
-なんとかなってるぞ
-タバコがない時いつもくれる友達
-でも吸いたくないメンソール
-憧れる側から追われる側になっても
-変わらないfriend
-謙虚を忘れるやつはダサい
-まだまだ満足なんてしない
-Do my thing そこ退け またbest超えるだけ
-Take it again 出来なきゃ Like pussy 負けてる
-楽々超えてく壁 先向かってる
-他人にも忙しけりゃこれ向かねえ
-(Look) I believe in me 変わらないRoyalty
-ダチと巻く緑が俺のMedicine
-賽の目 転がし何が出ても
-なるようになるって思ってれば儲けもん
-誘惑じゃねえ 今はCocaine
-速いのはお前の弱さだけ
-死んだ目じゃ着いてこないTinkerbell
-Hoodstar 憧れた もう止まんねえ
-今なら 堂々と言えるOK
-Broが言うし俺だけ 間違いない
-家族が 応援してくれるmy way
-何万字と今も歌詞を書いてる
-どうせだったら地元もっと盛り上げたいと思う
-でも俺が戦いたいのはTOKYO
-留まらずにWorld wide
-でもたまには帰るよ ちゃんと
-俺見てラップしてるそんな奴にも
-夢見せたいから止まんない
-さあ次の場所に行こうか (行こうか)
-生まれは新潟
-今じゃこの街の俺がHoodstar
-弟 兄ちゃんは 今ラップしてるから心配ない
-お年玉あげる側になった
-だけども財布は空にはなんない
-俺には持ってる夢とかあんだ
-体に墨見て泣いてた母ちゃん
-あの頃の俺に会えるんなら教えてあげたい
-なんとかなってるぞ
-タバコがない時いつもくれる友達
-でも吸いたくないメンソール
-憧れる側から追われる側になっても
-変わらないfriend
-謙虚を忘れるやつはダサい
-まだまだ満足なんてしない
+(Feat. Lyfe Jennings)
+
+[Intro:]
+Yuh! Hypnotize Minds, [? ]
+Three 6 Mafia, Lyfe Jennings, goin down
+Life is beautiful man
+But niggaz don't respect niggaz, y'knahmsayin?
+You help a man out just for him to dog you out
+Niggaz don't appreciate shit, fuck 'em all!
+
+[Chorus: Lyfe Jennings]
+So you crack this weed
+It's respect that'll cost my nigga
+Double back through the water if you cross a nigga
+It's greasy at the top, don't fall off my nigga
+And get lost my nigga
+I'm a marijuana smokin, never been broken
+I don't give a fuck about the po-lice, I'm a hood star!
+Sixteen inches on my Impala
+Daddy I'm a motherfuckin gangsta, ahh
+
+[Verse 1:]
+These niggaz wanna be in my shoes, but they feet too small
+They only yell so I turn to, just to see me fall
+The new code in the streets, that's used by the phony
+If you cain't beat him, just call the police on him
+Or hate on him so bad try to turn the world against him
+Go in the studio like a hoe make some bullshit and diss him
+But none of that surprise me I done been through it all
+17 years in the game, real game, DJ Paul
+I done seen the real, I done seen the fake
+I done seen fake bitches turn real to fake
+Cause hateism is a disease, it's kinda like AIDS
+They feed you shit for years, and then they send you to your grave
+
+[Chorus]
+
+[Verse 2:]
+First I'm broke, so I hang out with the rat and roach
+And still broke, cause I'm sleepin on apartment flo's
+The hood struggle is to get it, got to make the change
+See every dark is like the dark cloud full of rain
+You wonder why niggaz high and they robbin folks
+Ain't nuttin to tell you but to pack yo' heat and let it go
+Them junkies get a fuckin kick, when they smoke a brick
+I never seen a drug dealer ever call it quits
+But get money (yessir~!) Make the block pop off
+Niggaz snitchin man they heads will get chopped off
+The feds tappin fool it's dangerous when you hood trappin
+So don't get lost in the sauce slingin cold crack'n
+
+[Chorus]
 ```
