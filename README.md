@@ -1,4 +1,4 @@
-# Three 6 Mafia feat. Lyfe Jennings – Hood Star
+# Three 6 Mafia – Hood Star (feat. Lyfe Jennings)
 
 > **歌詞登録ステータス：プレーン歌詞のみ**
 
