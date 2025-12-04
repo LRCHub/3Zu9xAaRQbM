@@ -1,58 +1,124 @@
-# Three 6 Mafia – Hood Star (feat. Lyfe Jennings)
+# Bow Wow feat. Omarion – Hood Star
 
-> **歌詞登録ステータス：プレーン歌詞のみ**
+> **歌詞登録ステータス：同期歌詞あり**
 
-```
-(Feat. Lyfe Jennings)
-
-[Intro:]
-Yuh! Hypnotize Minds, [? ]
-Three 6 Mafia, Lyfe Jennings, goin down
-Life is beautiful man
-But niggaz don't respect niggaz, y'knahmsayin?
-You help a man out just for him to dog you out
-Niggaz don't appreciate shit, fuck 'em all!
-
-[Chorus: Lyfe Jennings]
-So you crack this weed
-It's respect that'll cost my nigga
-Double back through the water if you cross a nigga
-It's greasy at the top, don't fall off my nigga
-And get lost my nigga
-I'm a marijuana smokin, never been broken
-I don't give a fuck about the po-lice, I'm a hood star!
-Sixteen inches on my Impala
-Daddy I'm a motherfuckin gangsta, ahh
-
-[Verse 1:]
-These niggaz wanna be in my shoes, but they feet too small
-They only yell so I turn to, just to see me fall
-The new code in the streets, that's used by the phony
-If you cain't beat him, just call the police on him
-Or hate on him so bad try to turn the world against him
-Go in the studio like a hoe make some bullshit and diss him
-But none of that surprise me I done been through it all
-17 years in the game, real game, DJ Paul
-I done seen the real, I done seen the fake
-I done seen fake bitches turn real to fake
-Cause hateism is a disease, it's kinda like AIDS
-They feed you shit for years, and then they send you to your grave
-
-[Chorus]
-
-[Verse 2:]
-First I'm broke, so I hang out with the rat and roach
-And still broke, cause I'm sleepin on apartment flo's
-The hood struggle is to get it, got to make the change
-See every dark is like the dark cloud full of rain
-You wonder why niggaz high and they robbin folks
-Ain't nuttin to tell you but to pack yo' heat and let it go
-Them junkies get a fuckin kick, when they smoke a brick
-I never seen a drug dealer ever call it quits
-But get money (yessir~!) Make the block pop off
-Niggaz snitchin man they heads will get chopped off
-The feds tappin fool it's dangerous when you hood trappin
-So don't get lost in the sauce slingin cold crack'n
-
-[Chorus]
+```lrc
+[00:00.99] Hoodstar
+[00:01.47] By Bow Wow and Omarion
+[00:12.47] 
+[00:01.88] (Bow Speaking)
+[00:02.48] Ay Man This What The World Been Waitin On Dawg.
+[00:25.98] 
+[00:04.50] New Beginning My Niggas
+[00:05.87] Prince Of The Rap Game Ya Know
+[00:10.66] Me Bow Weezy
+[00:13.21] The Ambassador
+[00:15.64] Omarion
+[00:18.03] Dig Dat Homeboi
+[00:25.53] 
+[00:19.27] Squeeze the life outta the game so call me python.
+[00:25.05] Nigga I transform when they turn them lights on.
+[00:27.78] Mic on ice on. yea i gets my shine on.
+[00:30.83] Mr. Money Aint A Thang Jr. wit Omarion
+[00:49.83] 
+[00:32.99] And I confess that Im feelin myself.
+[00:36.26] I confess that im in it the wealth.
+[00:38.61] The money under my belt
+[00:39.88] So much r&b baby that my show could be shelfed.
+[00:42.67] I'm lost in the flow I can't be helped.
+[00:44.79] I got a swagg that can't be chromed.
+[00:46.80] Got a benz and a bentley and a lac and a jag on chrome.
+[00:50.52] Im a boss watch your mouth boi. (who you think you talkin to)
+[00:54.39] The hood love what I do.
+[01:06.39] 
+[00:55.76] Live the Life Im a Hood Star.
+[00:57.93] Cause yo boi nice wit it.
+[00:59.35] Girls line up at the bar.
+[01:00.80] It's Cause Im nice wit it.
+[01:02.31] Forget the price get it.
+[01:03.84] They talkin but we live it
+[01:05.30] They talkin but we live it.
+[01:06.54] The definition of nice.
+[01:18.04] 
+[01:07.92] Live the Life Im a Hood Star.
+[01:09.37] Cause yo boi nice wit it.
+[01:10.61] Girls line up at the bar.
+[01:12.53] That's Cause Im nice wit it.
+[01:13.72] Forget the price get it.
+[01:15.23] They talkin but we live it
+[01:16.61] They talkin but we live it.
+[01:18.25] The definition of nice.
+[01:29.75] 
+[01:19.08] Look I can't describe how I feel man.
+[01:22.18] It's like err time I breathe I make a million.
+[01:24.68] Shows we gon pack em out.
+[01:26.25] Money come in large amounts.
+[01:27.74] Ball until we fall nigga yea thats what im talkin bout.
+[01:55.24] 
+[01:30.39] I'm screamin like guns started poppin in the club.
+[01:33.01] The only thing poppin is this bottles fillin my cup.
+[01:35.89] And then we step on stage and its like the Twin Towers was born.
+[01:38.75] Fire in my eyes. Ice in my veins. its on.
+[01:59.25] 
+[01:40.92] Ay. The big game is ruthless.
+[01:43.14] Phantom Ruthless.
+[01:44.58] Young Bow Weezy definition what the truth is.
+[01:47.14] I'm err where the money be.
+[01:48.68] Err where the honies be.
+[01:50.24] You lookin at the real shit other niggas wanna be.
+[01:53.04] Columbus to LA you lames know just how we get down.
+[01:55.59] Go to any city and we shuttin down yo hometown.
+[02:19.09] 
+[01:58.69] We young wit it cocky
+[02:09.19] 
+[02:00.54] Yea we the problem.
+[02:01.93] Dynamic duo but not batman and robin.
+[02:20.43] 
+[02:04.16] I got a swagg that cant be matched.
+[02:06.05] Got a house in the hills and it looks like a car show in the back.
+[02:10.00] I'm a boss boi. (who you think you talkin to)
+[02:12.86] The hood love what I do. (who you think you talkin to)
+[02:39.86] 
+[02:15.10] Live the Life Im a Hood Star.
+[02:17.26] Cause yo boi nice wit it.
+[02:18.58] Girls line up at the bar.
+[02:20.28] It's Cause Im nice wit it.
+[02:21.52] Forget the price get it.
+[02:23.12] They talkin but we live it
+[02:24.57] They talkin but we live it.
+[02:25.96] The definition of nice.
+[02:37.46] 
+[02:27.34] Live the Life Im a Hood Star.
+[02:28.66] Cause yo boi nice wit it.
+[02:29.81] Girls line up at the bar.
+[02:32.76] That's Cause Im nice wit it.
+[02:33.58] Forget the price get it.
+[02:34.66] They talkin but we live it
+[02:35.85] They talkin but we live it.
+[02:37.23] The definition of nice
+[02:48.23] 
+[02:38.24] I'm sayin man this wat we do.
+[02:40.88] U kno wat im sayin
+[02:41.74] 24 7 365.
+[02:43.09] U know.
+[02:44.23] (They talkin but we live it)
+[02:45.48] (They talkin but we live it the definition of nice)
+[02:49.21] I live it man.
+[02:51.05] Live the Life Im a Hood Star.
+[02:51.86] Cause yo boi nice wit it.
+[02:52.62] Girls line up at the bar.
+[02:53.95] It's Cause Im nice wit it.
+[02:55.23] Forget the price get it.
+[02:56.82] They talkin but we live it
+[02:58.14] They talkin but we live it.
+[02:59.70] The definition of nice.
+[03:11.20] 
+[03:00.70] Live the Life Im a Hood Star.
+[03:02.31] Cause yo boi nice wit it.
+[03:03.52] Girls line up at the bar.
+[03:05.13] That's Cause Im nice wit it.
+[03:06.59] Forget the price get it.
+[03:08.08] They talkin but we live it
+[03:09.47] They talkin but we live it.
+[03:10.85] The definition of nice (fades nice nice nice nice).
 ```
